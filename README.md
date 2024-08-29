@@ -1,1 +1,1 @@
-# luana
+Me chamo Luana, tenho 15 anos, estudo na escola estadual Alberto Gomes Veiga, e estou no 1 ano do ensino médio, antes dessa escola eu estudava na escola Doutor Roque Vernalha, e estudei la durante 4 anos, no sexto, setimo , oitavo, e nono ano, gosto muito de sair, comer, assistir series, e amo filmes de terror.
